@@ -1,2 +1,3 @@
-script not free now
+script paid now
+
 
